@@ -36,5 +36,5 @@
 
 ### 📫 Contato
 
-- 📧 Email: Djalmaribeiro1995@outlook.com
+- 📧 Email: Djalmaribeiro95@outlook.com
 - 💼 [LinkedIn](https://www.linkedin.com/in/djalmaribeirodossantos/)
